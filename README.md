@@ -1,0 +1,2 @@
+VIDEO EXPLICANDO 
+https://udlaec-my.sharepoint.com/:v:/g/personal/esteban_enriquez_udla_edu_ec/ETSpjANWHmBMu6-DZZHh7_0BfmygGjCTfuNOzyTR6l9zDQ?e=cTHV82&nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D
